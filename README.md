@@ -1,0 +1,1 @@
+# SlovnikSK SK
